@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kuromi09172
 - 👀 I’m interested in DSSA
-- 🌱 I’m currently learning The Hive MC www.hivemc.com
+- 🌱 I’m currently learning The Hive MC www.playhive.com
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me @zenichi_bedrock on discord
 - 😄 Pronouns: idk
